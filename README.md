@@ -16,6 +16,7 @@
 
 # 2\. Ý nghĩa của lễ di quan
 
+Xem thêm: https://maitanggiangtho.vn/le-di-quan/
 # Lễ di quan không chỉ là một nghi thức vận chuyển linh cữu mà còn mang nhiều ý nghĩa tâm linh, bao gồm:
 
 # 
